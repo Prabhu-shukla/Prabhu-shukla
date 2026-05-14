@@ -1,8 +1,16 @@
-- 👋 Hi, I’m @Prabhu-shukla
-- 👀 I’m interested in ...predictive data analysis and business intelligence(BI)
-- 🌱 I am currently looking for openings 
-- 💞️ I’m looking to collaborate on ... predictive dta analysis and BI
-- 📫 How to reach me ...bharadwaj1194@gmail.com
+-hell oeveryone,
+
+GREETINGS OF THE DAY
+
+myself Prabhu Shukla
+I am an AI consultant and primarily focussed on the agentic AI ecosystem.
+I have been working on a RAG based agentic app which will cater the needs of myriad sectors(health, education, finance, legal). 
+The pace of evolution in Ai infrstructure is the most memerizing thing for me.
+Everyday i have to grasp n numbers of new born Ai babies .😂😂😂😂😂😂😂😂😂😂....
+this is  really exciting educational journety in itself.
+i would like to associate with like minded 👍.
+
+warmest regads
   
 
 
