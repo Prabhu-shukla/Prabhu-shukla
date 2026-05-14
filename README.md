@@ -1,4 +1,4 @@
--hell oeveryone,
+-hello oeveryone,
 
 GREETINGS OF THE DAY
 
@@ -10,7 +10,7 @@ Everyday i have to grasp n numbers of new born Ai babies .😂😂😂😂😂�
 this is  really exciting educational journety in itself.
 i would like to associate with like minded 👍.
 
-warmest regads
+warmest regards
   
 
 
