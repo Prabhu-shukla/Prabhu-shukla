@@ -5,7 +5,7 @@ GREETINGS OF THE DAY
 myself Prabhu Shukla
 I am an AI consultant and primarily focussed on the agentic AI ecosystem.
 I have been working on a RAG based agentic app which will cater the needs of myriad sectors(health, education, finance, legal). 
-The pace of evolution in Ai infrstructure is the most memerizing thing for me.
+The pace of evolution in Ai infrstructure is the most mesmerizing thing for me.
 Everyday i have to grasp n numbers of new born Ai babies .😂😂😂😂😂😂😂😂😂😂....
 this is  really exciting educational journety in itself.
 i would like to associate with like minded 👍.
